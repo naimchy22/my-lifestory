@@ -7,8 +7,6 @@ im 17 years old.
 
 ---
 
-# My Life story ...
-
 ## let's Start --
 
 <p>my village rashidpur. my home twon is feni , and i leave in dhaka! <br> i read in alim 2nd year al jameatul falahiya kamil madrasah.</p>
