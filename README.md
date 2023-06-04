@@ -9,7 +9,7 @@ im 17 years old.
 
 ## let's Start --
 
-<p>my village rashidpur. my home twon is feni , and i leave in dhaka! <br> i read in alim 2nd year al jameatul falahiya kamil madrasah.</p>
+<p>my village rashidpur. my home town is feni , and i leave in dhaka! <br> i read in alim 2nd year al jameatul falahiya kamil madrasah.</p>
 
 ### strike throw
 ~~wrong~~
